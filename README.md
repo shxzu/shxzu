@@ -8,6 +8,9 @@ I develop/own [Monsoon](https://monsoon.wtf), and other private mc clients im no
 uhh. hmu and ill talk wit u abt it. i usually dont do anything without pay, but im pushable.
 # Where do I reach you?
 Discord - shxzu
+
 Snapchat - shxzufr
+
 Youtube - shxzufr
+
 Minecraft (ig?): shxzu_
