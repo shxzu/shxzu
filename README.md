@@ -9,10 +9,6 @@ I own [Monsoon](https://monsoon.wtf), [Skidium](https://github.com/shxzu/skidium
 # Are you open to do any projects for me?
 uhh. hmu and ill talk wit u abt it. i usually dont do anything without pay, but im pushable.
 # Where do I reach you?
-Discord - shxzu
+Discord - sinxkyuna
 
-Snapchat - shxzufr
-
-Youtube - shxzufr
-
-Minecraft (ig?): shxzu_
+Minecraft (ig?): sinxkyuna
