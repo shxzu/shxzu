@@ -11,4 +11,4 @@ uhh. hmu and ill talk wit u abt it. i usually dont do anything without pay, but 
 # Where do I reach you?
 Discord - sinxkyuna
 
-Minecraft (ig?): sinxkyuna
+Minecraft (ig?) (language filter wouldnt let me put my x.. 😭): sinkyuna
