@@ -5,10 +5,10 @@ i program in: java, kotlin, python, js, html, css, and (learning) rust.
 
 tell me what u want, idrc.
 # What projects you do?
-I own [Monsoon](https://monsoon.wtf), [Valium](https://github.com/sinxkyuna/Valium) [Skidium](https://github.com/sinxkyuna/skidium), and Xiva, and other private mc clients im not finna show L.
+I own [Monsoon](https://monsoon.wtf), [Valium](https://github.com/shxzu/Valium) [Skidium](https://github.com/shxzu/skidium), and Xiva, and other private mc clients im not finna show L.
 # Are you open to do any projects for me?
 uhh. hmu and ill talk wit u abt it. i usually dont do anything without pay, but im pushable.
 # Where do I reach you?
-Discord - sinxkyuna
+Discord - shxzu
 
-Minecraft (ig?) (language filter wouldnt let me put my x.. 😭): sinkyuna
+Minecraft (ig?): shxzu_
