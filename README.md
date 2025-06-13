@@ -1,11 +1,11 @@
 # Who do I be?
-i am a 15 y/o guy intrested in: minecraft, programming, "thuggin" it out, and rap.
+i am a 15 y/o young cracka intrested in: minecraft, programming, "thuggin" it out, and rap.
 
-i program in: java, kotlin, python, js, html, css, and (learning) rust.
+i program in: java, c#, kotlin, python, js, html, css, and (learning) c++.
 
 tell me what u want, idrc.
 # What projects you do?
-I own [Monsoon](https://monsoon.wtf), [Valium](https://github.com/shxzu/Valium) [Skidium](https://github.com/shxzu/skidium), and Xiva, and other private mc clients im not finna show L.
+I own/develop on: Xiva, [Morphine](https://morphine.one) [Skidium](https://github.com/shxzu/skidium), and other private mc clients im not finna show L.
 # Are you open to do any projects for me?
 uhh. hmu and ill talk wit u abt it. i usually dont do anything without pay, but im pushable.
 # Where do I reach you?
