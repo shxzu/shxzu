@@ -1,14 +1,16 @@
-# Who do I be?
-i am a 16 y/o young cracka intrested in: minecraft, programming, "thuggin" it out, and rap.
+# who is this mf?
+i am a 16 y/o yung craka intrested in: software/game development, reverse engineering, anime, mc, gd, uberstrike, "thuggin" it out, and the devil's music.
 
-i program in: java, c#, kotlin, python, js, html, css, and (learning) c++.
+i program in: java, c#, html, kotlin, js, lua, python and (learnin) c++.
 
-tell me what u want, idrc.
-# What projects you do?
-I own/develop on: [Simp](https://github.com/shxzu/Simp), Xiva, [Morphine](https://morphine.one), [Skidium](https://github.com/shxzu/skidium), and other private mc clients im not finna show L.
+oops did i ragebait u??
+# wthelly is ur purpose?
+i dev for: [Simp](https://github.com/shxzu/Simp), [Xiva](https://clovr.store), and [Ambien V2 (HEAVY WIP)](https://github.com/shxzu/Ambien-V2).
 # Are you open to do any projects for me?
-uhh. hmu and ill talk wit u abt it. i usually dont do anything without pay, but im pushable.
+uhh. hmu and ill talk wit u abt it. i usuly dnt do anythin without $$$, but im pushable.
 # Where do I reach you?
 Discord - shxzu
+
+YT: shxzufr
 
 Minecraft (ig?): shxzu_
